@@ -5,4 +5,4 @@ I'm a bachelor in Physics and now I´m doing a Master in Data science at Univers
 Interested in A.I, Physics, Neuroscience and how Universe works.
 
 How to reach me
-[`📫 *@gmail.com`](mailto:*@gmail.com)
+📫 [augusto.tagle@uc.cl](mailto:augusto.tagle@uc.cl)
